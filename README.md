@@ -1,1 +1,1 @@
-# ZEE-Media-Project
+# ZEE-Media-Internship
